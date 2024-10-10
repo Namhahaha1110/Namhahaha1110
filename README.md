@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Le Hoang Nam
-- 👀 I’m studying Ho Chi Minh City University of Foreign Languages and Information Technology – HUFLIT
+- 👀 I’m studying at Ho Chi Minh City University of Foreign Languages and Information Technology – HUFLIT
 - 📫 How to reach me hnam.11102005@gmail.com
 
 <!---
